@@ -1,1 +1,1 @@
-Pwned via GitHub Device Code Phishing! #creative_initial_access
+Pwned via GitHub Device Phising
